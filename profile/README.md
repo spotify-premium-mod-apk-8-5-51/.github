@@ -1,4 +1,4 @@
-# Spotify Premium Mod APK v8.5.51 Unlocked Evertything Versi 2025 - Unduh Gratis Untuk Android
+# Spotify Premium Mod APK v8.5.51 Unlocked Everything Versi 2025 - Unduh Gratis Untuk Android
 
 ## Pendahuluan
 
